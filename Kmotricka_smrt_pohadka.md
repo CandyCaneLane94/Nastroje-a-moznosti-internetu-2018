@@ -3,6 +3,7 @@ Kmotøièka Smrt
 ![temny_les](https://pixabay.com/cs/tmav%C3%BD-n%C3%A1ladov%C3%BD-stra%C5%A1ideln%C3%BD-p%C5%99%C3%ADrodn%C3%AD-1936954/)
 
 Bratøi Grimmové
+
 b yl jednou jeden chudièkı mu a ten mìl dvanáct dìtí, a tak musel dnem i nocí pracovat, aby je vùbec uivil. Kdy pøišlo na svìt tøinácté dítì, pøišla na nìj úzkost, a tak se vydal silnicí, aby prvního, kterého potká, poádal o kmotrovství. A ten první, kterého mu potkal, nebyl nikdo jinı ne náš milovanı Pán, kterı vìdìl, co má ten chudák na srdci a pravil: „Dobrı mui, je mi tì líto, vezmu tvé dítì ke køtu a postarám se o nìj, aby bylo na tomto svìtì šastné.“ Mu se podivil a zeptal se: „A kdopak ty jsi?“ „Já jsem Bùh.“ „Tak tebe si za kmotra nepøeji,“ odvìtil mu: „ty dáváš bohatım, zatímco chudáky necháváš hladovìt.“ Tak pravil a od Pána se odvrátil; nevìdìl, jak moudøe bohatství i chudobu Bùh rozdìluje.
 
 m u šel dál a tu k nìmu pøišel ïábel, kterı se ho ptal: „Co hledáš? Vezmi za kmotra mne, dám tvému dítìti hojnost zlata a všechny radosti svìta k tomu.“ Mu se zeptal: „A kdopak ty jsi?“ „Já jsem ïábel.“ „Tak tebe za kmotra nechci,“ odvìtil mu: „ty lidi zavádíš a balamutíš a podvádíš.“
